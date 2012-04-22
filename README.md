@@ -1,0 +1,1 @@
+SeoPy for everyone!
